@@ -1,0 +1,1 @@
+egg, butter and cooking oil (and optional salt)
